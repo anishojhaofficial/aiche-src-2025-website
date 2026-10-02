@@ -37,6 +37,10 @@ The platform was independently designed, developed, deployed, and maintained to 
 ## Live Website
 
 🌐 [www.naimishya2025.com](https://www.naimishya2025.com)
+_The domain has been expired_
+
+To view the website click on the following link:
+🌐 (https://roop76karmakar.wixstudio.com/src2025)
 
 ---
 
